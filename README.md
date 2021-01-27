@@ -1,3 +1,4 @@
+脚本来自shylocks，本人是菜鸟，只会膜拜大佬
 ## 通知频道：
 https://t.me/joinchat/V0oxYENmx2PTlY1L
 ## 赞赏码:
